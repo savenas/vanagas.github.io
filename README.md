@@ -1,1 +1,0 @@
-# vanagas.github.io
